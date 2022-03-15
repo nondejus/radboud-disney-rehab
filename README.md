@@ -1,6 +1,0 @@
-# radboud-disney-rehab
-
-scientific practice
-
-# minnie mouse
-https://en.wikipedia.org/wiki/Minnie_Mouse
